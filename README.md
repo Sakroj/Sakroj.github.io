@@ -1,2 +1,0 @@
-# Sakroj.github.io
-CV 
